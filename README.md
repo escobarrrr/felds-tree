@@ -6,7 +6,6 @@
 and made  **for you!** 👀
 ## 📥 the project 
 To  follow us go  [here!](https://github.com/White-Zombies).
-## 🏁 thank you to
 ## 📢  Notifications
 Twitter -> [@mxrhre](https://twitter.com/malfratsind)\
 Discord -> [emma's safe place](https://discord.gg/4hnHCf22)\

@@ -12,10 +12,9 @@ Twitter -> [@mxrhre](https://twitter.com/malfratsind)\
 Discord -> [emma's safe place](https://discord.gg/4hnHCf22)\
 Watch or star [the project](https://github.com/malfrats/osint-map) on Github 
 ## 🏁 thank you to  
-victor for the assistance 
-the discord community for the ideas 
-the community of "le grenier de feldup"  for help  
 
+## victor 
+## the discord community
 
 
 
